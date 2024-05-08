@@ -1,2 +1,2 @@
-I am so
+。I am so
 sorry
